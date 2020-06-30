@@ -7,3 +7,4 @@ Raven Reyes is a major character in the second, third, fourth, fifth, sixth, and
 * fearless
 * smart
 
+> Nothing like a little pain to remind you you're alive.
